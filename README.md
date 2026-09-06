@@ -68,7 +68,7 @@ Emby 账号是私人账号，只限本人使用，禁止分享。系统有后台
 
 [前往糖果云查看套餐，结算时尝试 ABING888](https://candytally.cyou/web/#/login?code=uhBQw3Eq)
 
-通过上面的邀请链接付费，我可能获得佣金。
+
 
 ## 常见问题 FAQ
 
