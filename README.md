@@ -8,7 +8,7 @@
 
 如果你也经常用 AI，或者想找一份能日常稳定用的机场，可以试试糖果云。
 
-[点击查看糖果云当前套餐](https://candytally.cyou/web/#/login?code=uhBQw3Eq)
+[点击进入糖果云官网注册领取优惠](https://candytally.cyou/web/#/login?code=uhBQw3Eq)
 
 ## 糖果云机场真实体验：为什么我还在用
 
@@ -66,7 +66,7 @@ Emby 账号是私人账号，只限本人使用，禁止分享。系统有后台
 
 如果你的需求和我比较接近，把常用 AI 的操作完整试一遍。能融入自己的使用习惯，再决定是否继续当主力，这个判断比节点数量或者某一次的测速数字更实在。
 
-[前往糖果云查看套餐，结算时尝试 ABING888](https://candytally.cyou/web/#/login?code=uhBQw3Eq)
+[点击前往糖果云官网注册领取优惠码， ABING888](https://candytally.cyou/web/#/login?code=uhBQw3Eq)
 
 
 
